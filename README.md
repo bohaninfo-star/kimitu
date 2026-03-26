@@ -1,2 +1,0 @@
-# kimitu
-kimitu jyouhou 
